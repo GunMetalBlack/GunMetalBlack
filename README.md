@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I’m @GunMetalBlack<br>I’m interested in Programming Languages.<br>I’m currently learning C++.<br>I’m looking to collaborate on Grund Lang.<br>How to reach me Discord GunMetalBlack#2259?
+Hi, I’m @GunMetalBlack<br>I’m interested in Programming Languages.<br>I’m currently learning C++.<br>I’m looking to collaborate on Grund Lang.<br>How to reach me Discord GunMetalBlack#2259 Or my email powerhousegames206@gmail.com.
 
 
 ## 🌐 Socials:
